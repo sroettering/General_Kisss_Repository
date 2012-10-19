@@ -2,10 +2,10 @@ Hallo Herr General,
 
 dies ist eine Textdatei extra auf ihren Wunsch hin erstellt.
 
-Gruß,
+Gruï¿½,
 
 der Fahnenjunker
 
 -----------------------------------------------------------
 
-Eine Insel mit zwei Bergen!
+Eine Insel mit zwei Bergen! :))))
